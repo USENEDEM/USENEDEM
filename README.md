@@ -1,6 +1,5 @@
 - 👋 Hi, I’m USEN EDEM  👨‍⚖️
-- 👀 I’m interested in cybersecurity and cloud platforms.
-- 📖 I’m currently learning cybersecurity and cloud security.
+- 👀 I’m interested in cybersecurity.
 - 💞️ I’m looking to collaborate on cybersecurity jobs/events/projects.
 - 📫 How to reach me E-mail: http://www.Usenneyo@gmail.com     LINKEDIN: http://www.linkedin.com/in/usen-edem-45b793250
 - 😄 Pronouns: He/Him
